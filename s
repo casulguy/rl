@@ -26,7 +26,8 @@ aU1AZ2rADDPsDjjC //SShiveRR
 jSjMssi+UQ2rZTtQ //TokumeiR
 yFMqXNlZKkTBesxB //Krisztian
 RFkdaCkk//e0g0BY //Blarbe
-vCCg0UXFSv5+7xOT //brandaogamer dan.gs
+7JCQgbW1uq6uX0ND //brandaogamer dan.gs 1
+vCCg0UXFSv5+7xOT //brandaogamer dan.gs 2
 9dfVwNX/9ej1l5WD //Rubbel_31 racon
 BSfAEPBP7M+VCClz //AkumaZ npc
 mYuh5IEryQQpexFX //japon
