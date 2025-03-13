@@ -24,7 +24,7 @@ Vo/+I2qmmc4Ncrb+ //Rinto-R35
 4XTMe/IXhieMCKEr //Fearr
 aU1AZ2rADDPsDjjC //SShiveRR
 jSjMssi+UQ2rZTtQ //TokumeiR
-yFMqXNlZKkTBesxB //Krisztian
+pklATn8OJyg+Ifb2 //Krisztian
 RFkdaCkk//e0g0BY //Blarbe
 7JCQgbW1uq6uX0ND //brandaogamer dan.gs 1
 vCCg0UXFSv5+7xOT //brandaogamer dan.gs 2
