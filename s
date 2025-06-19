@@ -19,7 +19,7 @@ J2DIKbuKGUTBKY6A //Neozixxs
 5My/cSHlrg7Ju0vX //Arce
 sfsPqI8q31mPN6ZK //ZTh14g0
 eo+qW/4pSMbJ5oVx //Rinto-R35
-49Z+pFmZ0socR2uh //Negrito
+kO0sGkDl0CZNstQF //Negrito
 2lN9mahggFn7p3aO //Floppy
 4XTMe/IXhieMCKEr //Fearr
 aU1AZ2rADDPsDjjC //SShiveRR
