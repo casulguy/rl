@@ -24,7 +24,7 @@ kO0sGkDl0CZNstQF //Negrito
 4XTMe/IXhieMCKEr //Fearr
 aU1AZ2rADDPsDjjC //SShiveRR
 jSjMssi+UQ2rZTtQ //TokumeiR
-pklATn8OJyg+Ifb2 //Krisztian
+aEk2zkEL/iCddgm3 //Krisztian
 RFkdaCkk//e0g0BY //Blarbe
 7JCQgbW1uq6uX0ND //brandaogamer dan.gs 1
 vCCg0UXFSv5+7xOT //brandaogamer dan.gs 2
