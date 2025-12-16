@@ -2,6 +2,7 @@ odPGB8FzbqcRk7bP //MizzMaster
 iq/9k/ZvCHaYq4Ah //Krunal
 FQYjYBECr2ydjqvo //Mk
 teBlTcW4skG67n1G //Mike
+JSoBMxIJGHVnQH1R //brandaogamer dan.gs
 zV+dCF3nPVD9D037 //Spaidis
 mf4rB1PqIxxIiJ9k //Daveys
 DyTWx/TX+vT77suL //Reflex
@@ -28,9 +29,6 @@ jSjMssi+UQ2rZTtQ //TokumeiR
 aEk2zkEL/iCddgm3 //Krisztian
 Qq2OuYa8hYj5kM7g //Eren
 RFkdaCkk//e0g0BY //Blarbe
-7JCQgbW1uq6uX0ND //brandaogamer dan.gs 1
-vCCg0UXFSv5+7xOT //brandaogamer dan.gs 2
-a5RL9cRb2ju5Do+H //brandaogamer dan.gs 3
 9dfVwNX/9ej1l5WD //Rubbel_31 racon
 BSfAEPBP7M+VCClz //AkumaZ npc
 mYuh5IEryQQpexFX //japon
