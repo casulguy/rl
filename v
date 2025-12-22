@@ -1,6 +1,5 @@
 odPGB8FzbqcRk7bP //MizzMaster
 iq/9k/ZvCHaYq4Ah //Krunal
-FQYjYBECr2ydjqvo //Mk
 J2DIKbuKGUTBKY6A //Neozixxs
 teBlTcW4skG67n1G //Mike
 JSoBMxIJGHVnQH1R //brandaogamer dan.gs
