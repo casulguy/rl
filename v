@@ -69,3 +69,6 @@ jGtHwiCznkpx1yaJ //MatheusMitoGD
 9Ltu3YB3OumcQzbl //luck_maker_021 Denner dnrbrito pc
 
 rhJKc9j+4epWhr0G //emircankose
+
+fF9kFAM43tPvmK2k //valiugera
+HzQ7Jj8nKtvE9/ub //sparckify
