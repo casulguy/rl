@@ -13,7 +13,7 @@ ClUuvj22DKUZjheO //ntos.64
 
 r+oyYJ3VBr7AC1eV //Negrito new
 +GjAx6CIaGfI2LC0 //Nyrak
-+vTmmr9frGYIJMHx //brandaogamer dan.gs
+o6yDvZyDkvPhxvff //brandaogamer dan.gs
 2lN9mahggFn7p3aO //Floppy
 teBlTcW4skG67n1G //Mike
 kCWnN7w/kh+BMZ4R //Mateus
