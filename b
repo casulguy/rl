@@ -17,6 +17,7 @@ r+oyYJ3VBr7AC1eV //Negrito new
 5My/cSHlrg7Ju0vX //Arce
 /Bda6cQLUpHEE6bx //Snikee
 Qtlti9t7itJkuMAV //Lion
+UtGIm/erNAPSbckl //Mr.Baiano
 36AxsxOMGZ5swHXG //Naccari
 o6yDvZyDkvPhxvff //brandaogamer dan.gs
 2lN9mahggFn7p3aO //Floppy
