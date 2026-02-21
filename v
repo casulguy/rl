@@ -54,7 +54,6 @@ dNjbE+D0N4/cIKP6 //Foch_sho
 7EeG/MoMfLgdcqeQ //dan40BG Yorry
 lHl1dsvYI7u6uYgE //drift_anton
 PT5MEaa6l7nyk8PU //finland69 Dlocky
-b+vaqztZsxh9+WVB //Barrau Nathan @Nath_b476
 
 kO0sGkDl0CZNstQF //Negrito old
 r+oyYJ3VBr7AC1eV //Negrito new
