@@ -11,5 +11,6 @@ Ze5o/Ht2y0HJSEPY //[od]jardim Jardim
 xJVSaij6VQzU7kR6 //CR1ST0F3R CR1
 y/r091+6W2sqCoGI //Matheus GamerJFTV
 
+o6yDvZyDkvPhxvff //brandaogamer dan.gs
 x1j7ZP5tgCGs2q/d //evandroPRO123 Evandro
 VW5Pds7QLZ6bsAMW //driftkn
