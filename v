@@ -55,7 +55,6 @@ dNjbE+D0N4/cIKP6 //Foch_sho
 lHl1dsvYI7u6uYgE //drift_anton
 PT5MEaa6l7nyk8PU //finland69 Dlocky
 VW5Pds7QLZ6bsAMW //driftkn
-LcapFmHPpmtOC/mz //dark01 Baran
 
 kO0sGkDl0CZNstQF //Negrito old
 r+oyYJ3VBr7AC1eV //Negrito new
