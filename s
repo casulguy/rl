@@ -77,6 +77,7 @@ xJVSaij6VQzU7kR6 //CR1ST0F3R CR1
 QXADyacQK7p9I+ny //wezzyskeere wezzy
 x1j7ZP5tgCGs2q/d //evandroPRO123 Evandro
 S2d3dc7M/dG5t7AG //maaziNn
+JiY6EWZOWrmG5vrW //zZAloneZz
 
 rhJKc9j+4epWhr0G //emircankose
 ACI2G2MZrki8oYmH //ferhat0125
