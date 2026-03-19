@@ -47,7 +47,6 @@ g6lbpEJ8WWcRchgK //Kitteh
 5m/9zbKLOIb+R0TF //34dokuzkavaklar Reyland
 gVPn0TVH68UZS79J //Specy Shirt
 KFFlLFAwyoMvzrrS //Transporter Merdin
-dPtJqvSquxG06nTq //arda556 Arda Aydın
 q/40Vek8T5nWfoHW //Cam22b
 a+V3qjMFn8pbVScF //iiiiil ivanlushchenko?
 dNjbE+D0N4/cIKP6 //Foch_sho
@@ -77,6 +76,7 @@ HWqbD4w1vC9X2k31 //luck_maker_021 Denner dnrbrito pc
 pIv7Nm5DpvY9NU6p //Thzimm
 RTf+r2vwuXU77HMs //blexteeee
 
+zsBdp3ocydNWaGXS //arda556 Arda Aydın
 rhJKc9j+4epWhr0G //emircankose
 ACI2G2MZrki8oYmH //ferhat0125
 
