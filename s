@@ -84,7 +84,6 @@ pIv7Nm5DpvY9NU6p //Thzimm
 RTf+r2vwuXU77HMs //blexteeee
 XmZiaAwaaDAs0tb0 //SSix_G4ming
 J+n5BF01EMTOXmUD //DelRey
-8ZOdl+XngWtpa3Vp //ratorkz @fvlak
 ejDicia8bv5iOOp6 //Cezar Meireles - Driver @_japa_.
 
 zsBdp3ocydNWaGXS //arda556 Arda Aydın
