@@ -77,7 +77,6 @@ jGtHwiCznkpx1yaJ //MatheusMitoGD
 HWqbD4w1vC9X2k31 //luck_maker_021 Denner dnrbrito pc
 pIv7Nm5DpvY9NU6p //Thzimm
 RTf+r2vwuXU77HMs //blexteeee
-8ZOdl+XngWtpa3Vp //ratorkz @fvlak
 
 zsBdp3ocydNWaGXS //arda556 Arda Aydın
 rhJKc9j+4epWhr0G //emircankose
