@@ -60,6 +60,7 @@ EzxxB1VF6KPxlzPF //lfsedu3311923
 
 kO0sGkDl0CZNstQF //Negrito old
 r+oyYJ3VBr7AC1eV //Negrito new
+pu0BVuwLSuorfYTF //Gbzz
 +GjAx6CIaGfI2LC0 //Nyrak
 5My/cSHlrg7Ju0vX //Arce
 /Bda6cQLUpHEE6bx //Snikee
