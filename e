@@ -9,6 +9,8 @@ Ze5o/Ht2y0HJSEPY //[od]jardim Jardim
 6S47a2gaV1RBUVbg //bayanofmansorofisky
 oQ2p54myz2s3Ddd4 //GumifustRacing
 
+kO0sGkDl0CZNstQF //Negrito old
+r+oyYJ3VBr7AC1eV //Negrito new
 +GjAx6CIaGfI2LC0 //Nyrak
 5My/cSHlrg7Ju0vX //Arce
 Qtlti9t7itJkuMAV //Lion
