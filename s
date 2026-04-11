@@ -85,7 +85,6 @@ JiY6EWZOWrmG5vrW //zZAloneZz
 pIv7Nm5DpvY9NU6p //Thzimm
 RTf+r2vwuXU77HMs //blexteeee
 rsYDfF353zC2zwkn //g1nxb10 @lsilveirarb
-XmZiaAwaaDAs0tb0 //SSix_G4ming
 J+n5BF01EMTOXmUD //DelRey
 ejDicia8bv5iOOp6 //Cezar Meireles - Driver @_japa_.
 
