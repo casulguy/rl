@@ -35,7 +35,6 @@ kCWnN7w/kh+BMZ4R //Mateus
 VtLlrMaxqE2aGTnp //Allves
 MCsWXZD/Bl2YX/ol //flackanny
 4jMhfQ6jQHaCX/Dt //m.alvessx_
-B6x5nE8TjlkMX3wv //Netosilvagames
 sFFSvauqvbips7Cq //AnthwaineJR
 QfplXd+6kzyf72mU //Flex
 jnoo418NxLBmOZVb //Robobo
