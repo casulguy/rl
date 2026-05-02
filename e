@@ -1,6 +1,7 @@
 odPGB8FzbqcRk7bP //MizzMaster
 iq/9k/ZvCHaYq4Ah //Krunal
 FQYjYBECr2ydjqvo //Mk
+FnxRnz0frpAeZFmF //Neozixxs
 7H+ggNRnqIjsP1Cb //Brudda
 o6yDvZyDkvPhxvff //brandaogamer dan.gs
 7EeG/MoMfLgdcqeQ //dan40BG Yorry
