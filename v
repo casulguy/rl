@@ -8,7 +8,6 @@ o6yDvZyDkvPhxvff //brandaogamer dan.gs
 zV+dCF3nPVD9D037 //Spaidis
 mf4rB1PqIxxIiJ9k //Daveys
 DyTWx/TX+vT77suL //Reflex
-yFQFwOB0NfCYZNXo //Tikvosha
 hv0Kf0abykuc+8Q1 //Minivan
 83CSLavNDZokf+0P //redekisde
 IuW7RhAk5YdYFj74 //Banana
