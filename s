@@ -9,7 +9,6 @@ zV+dCF3nPVD9D037 //Spaidis
 7H+ggNRnqIjsP1Cb //Brudda
 G+Dl/nZAWaonPwmC //Tuttu
 DyTWx/TX+vT77suL //Reflex
-yFQFwOB0NfCYZNXo //Tikvosha
 mf4rB1PqIxxIiJ9k //Daveys
 Pz91veu1yixMekLj //Hulk
 5WSpmy1sUYOVNKmQ //Doeda
