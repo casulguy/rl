@@ -12,8 +12,7 @@ Ze5o/Ht2y0HJSEPY //[od]jardim Jardim
 oQ2p54myz2s3Ddd4 //GumifustRacing
 gVPn0TVH68UZS79J //Specy Shirt
 
-kO0sGkDl0CZNstQF //Negrito old
-r+oyYJ3VBr7AC1eV //Negrito new
+0vrunIiOlLxQXqpA //Negrito
 +GjAx6CIaGfI2LC0 //Nyrak
 5My/cSHlrg7Ju0vX //Arce
 Qtlti9t7itJkuMAV //Lion
