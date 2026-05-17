@@ -58,8 +58,7 @@ nc9N+A2XbYAtvz2r //XMIGUEHHH
 EzxxB1VF6KPxlzPF //lfsedu3311923
 E9TWJBUaH0FHHL2o //ImGoodAtDrifting
 
-kO0sGkDl0CZNstQF //Negrito old
-r+oyYJ3VBr7AC1eV //Negrito new
+0vrunIiOlLxQXqpA //Negrito
 pu0BVuwLSuorfYTF //Gbzz
 +GjAx6CIaGfI2LC0 //Nyrak
 5My/cSHlrg7Ju0vX //Arce
