@@ -63,7 +63,7 @@ AO2Yh+jmnYZnbhh+ //Pazzur
 g3BnByw7/o+jXgdn //nonna
 
 8NjI8ursipKyvLSm //Negrito
-pu0BVuwLSuorfYTF //Gbzz
+n8rYuYVgU60Cav0i //Gbzz
 +GjAx6CIaGfI2LC0 //Nyrak
 5My/cSHlrg7Ju0vX //Arce
 /Bda6cQLUpHEE6bx //Snikee
