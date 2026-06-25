@@ -10,8 +10,6 @@ PT5MEaa6l7nyk8PU //finland69 Dlocky
 Ze5o/Ht2y0HJSEPY //[od]jardim Jardim
 6S47a2gaV1RBUVbg //bayanofmansorofisky
 oQ2p54myz2s3Ddd4 //GumifustRacing
-gVPn0TVH68UZS79J //Specy Shirt
-6WzJwL2CBXbN1r+M //Epicproes
 AKfFpdeVPOoCvGbn //Jorks
 AO2Yh+jmnYZnbhh+ //Pazzur
 g3BnByw7/o+jXgdn //nonna
