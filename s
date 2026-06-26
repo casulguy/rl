@@ -95,7 +95,6 @@ s12Pguv91yIzHU9N //Soaresss @white90fps
 UtGIm/erNAPSbckl //Mr.Baiano
 Oawax5uuGcuETNeg //SampaioFerreira @sk1psf
 cDPjWiXudCVcEtWW //LEOOZIIN07 @.leoziiin
-Yeg1YoDZYk3kLmlB //BorgesYT @biiiell
 
 zsBdp3ocydNWaGXS //arda556 Arda Aydın
 rhJKc9j+4epWhr0G //emircankose
