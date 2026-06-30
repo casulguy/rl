@@ -33,7 +33,6 @@ izKlLFfeQchz+m2U //Raion4545 meow
 kfNJ7AmTEYzRswmv //mobius-1
 kCWnN7w/kh+BMZ4R //Mateus
 VtLlrMaxqE2aGTnp //Allves
-MCsWXZD/Bl2YX/ol //flackanny
 4jMhfQ6jQHaCX/Dt //m.alvessx_
 sFFSvauqvbips7Cq //AnthwaineJR
 QfplXd+6kzyf72mU //Flex
@@ -66,7 +65,7 @@ g3BnByw7/o+jXgdn //nonna
 n8rYuYVgU60Cav0i //Gbzz
 +GjAx6CIaGfI2LC0 //Nyrak
 5My/cSHlrg7Ju0vX //Arce
-/Bda6cQLUpHEE6bx //Snikee
+s6qR3BN+gdwb3mWk //flackanny @snikii0
 Qtlti9t7itJkuMAV //Lion
 WOxi82V+/CD4TELG //Scarfac312
 w96Tvl5NFj3O5pO9 //Kropka
