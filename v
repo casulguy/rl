@@ -19,8 +19,7 @@ G+Dl/nZAWaonPwmC //Tuttu
 Pz91veu1yixMekLj //Hulk
 5WSpmy1sUYOVNKmQ //Doeda
 WoqGpUKqrkVqenZq //Superlame
-yqsPng/qddFeIYoq //SRT 2
-zJddSTKegnXTz6Bc //SRT 1
+YhY4z/2xeGw2xcuP //psikomania SRT
 CKsouD+0AqcbjBGI //Floppy
 jSjMssi+UQ2rZTtQ //TokumeiR
 aEk2zkEL/iCddgm3 //Krisztian
