@@ -14,6 +14,8 @@ AKfFpdeVPOoCvGbn //Jorks
 AO2Yh+jmnYZnbhh+ //Pazzur
 g3BnByw7/o+jXgdn //nonna
 KVjhAL3RcuECpdFJ //Eren
+yqsPng/qddFeIYoq //SRT 2
+zJddSTKegnXTz6Bc //SRT 1
 
 8NjI8ursipKyvLSm //Negrito
 n8rYuYVgU60Cav0i //Gbzz
