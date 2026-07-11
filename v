@@ -68,7 +68,6 @@ n8rYuYVgU60Cav0i //Gbzz
 s6qR3BN+gdwb3mWk //flackanny @snikii0
 Qtlti9t7itJkuMAV //Lion
 WOxi82V+/CD4TELG //Scarfac312
-w96Tvl5NFj3O5pO9 //Kropka
 IWKH0QdS5yB2lNd8 //mauromega
 sfsPqI8q31mPN6ZK //ZTh14g0
 eo+qW/4pSMbJ5oVx //Rinto-R35
