@@ -26,7 +26,6 @@ aEk2zkEL/iCddgm3 //Krisztian
 KVjhAL3RcuECpdFJ //Eren
 VjcGz9HY1BXU3ddu //Blarbe
 9dfVwNX/9ej1l5WD //Rubbel_31 racon
-BSfAEPBP7M+VCClz //AkumaZ npc
 mYuh5IEryQQpexFX //japon
 WyCfdXHnehsNGSeb //dmrzn
 izKlLFfeQchz+m2U //Raion4545 meow
@@ -99,6 +98,8 @@ zsBdp3ocydNWaGXS //arda556 Arda Aydın
 rhJKc9j+4epWhr0G //emircankose
 NtBwNHQM+BrS9rbG //Gokhnyk
 ACI2G2MZrki8oYmH //ferhat0125
+y54RKFdt/rM0wVsd //naixoNn naixoN
+RQvjXxDe/bylNvPw //AkumaZ ngu npc
 f5JwQNYGlftD8dlU //Artvin08 @cynaxthegod
 24TSlAwqTRq2DssY //getcloserz @_getcloser wKadir
 0Mf+k7S7UndoHzbV //ZZXROD
