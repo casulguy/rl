@@ -38,6 +38,3 @@ NtBwNHQM+BrS9rbG vs   //Gokhnyk
 ACI2G2MZrki8oYmH vs   //ferhat0125
 y54RKFdt/rM0wVsd vs   //naixoNn naixoN
 RQvjXxDe/bylNvPw vs   //AkumaZ ngu npc
-
-
-
