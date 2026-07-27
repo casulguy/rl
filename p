@@ -31,6 +31,8 @@ y/r091+6W2sqCoGI vseb //Matheus GamerJFTV
 x1j7ZP5tgCGs2q/d vseb //evandroPRO123 Evandro
 
 xF+C4SxjSqnsS66J vs   //flackanny Snikee @snikii0
+WOxi82V+/CD4TELG vs   //Scarfac312
+RTf+r2vwuXU77HMs vs   //blexteeee blast
 
 zsBdp3ocydNWaGXS vs   //arda556 Arda Aydın
 rhJKc9j+4epWhr0G vs   //emircankose
