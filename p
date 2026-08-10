@@ -46,7 +46,6 @@ WOxi82V+/CD4TELG vs   //Scarfac312
 RTf+r2vwuXU77HMs vs   //blexteeee blast
 
 zsBdp3ocydNWaGXS vs   //arda556 Arda Aydın
-rhJKc9j+4epWhr0G vs   //emircankose
 NtBwNHQM+BrS9rbG vs   //Gokhnyk
 rK5TRkj1NW1iFAa1 vs   //shadow3 EVO • R E E P @shadow.o7
 ACI2G2MZrki8oYmH vs   //ferhat0125
