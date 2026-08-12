@@ -27,6 +27,7 @@ heZ9VD05hPFKUT2h vs   //M5SUKA swim> @fullfocuss
 hv0Kf0abykuc+8Q1 vs   //loweredlexus Minivan
 CKsouD+0AqcbjBGI vs   //Floppy
 IDBGtpQkCnq46N4u vs   //XMIGUEHHH
+EzxxB1VF6KPxlzPF vs   //lfsedu3311923 ///MAJARA EdyLoko @edyloko
 
 jJqq843ULewE0mJ+ sb   //young.drift VM.Roham @lil.pickyy
 
