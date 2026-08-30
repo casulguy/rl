@@ -30,6 +30,7 @@ IDBGtpQkCnq46N4u vs   //XMIGUEHHH
 EzxxB1VF6KPxlzPF vs   //lfsedu3311923 ///MAJARA EdyLoko @edyloko
 
 uVBWQVtGfW9iFAcI v    //x1mk_z3 X1 @x1mk_z3
+0x4TZVhWofbx3v0O v    //gummy8879 solar.sys @solar.sys
 
 8NjI8ursipKyvLSm vseb //Negrito
 n8rYuYVgU60Cav0i vseb //Gbzz
