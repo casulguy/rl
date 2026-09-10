@@ -21,6 +21,9 @@ VRFlqyWuk59jkWN0 vseb //balintka1234 GumifüstRacing @.hungi
 yikp1dP1yODsyvT7 vseb //mastermaster Imposter @.impost3r.
 83CSLavNDZokf+0P vseb //redekizde [CM] redekis.AP @redekisde
 
+eSD+BdqZMsCF3PGh vseb //NotNiceLV K®nfl1ct @.not_nice_lv
+YoNU54nfzBE8Rmix vseb //Ruhnu Skout @osiitz
+
 Z05zZXgNaikv1A89 vsb  //Nirvaki. Red. reddish.akio
 
 heZ9VD05hPFKUT2h vs   //M5SUKA swim> @fullfocuss
